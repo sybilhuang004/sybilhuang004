@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sybilhuang004
 - 👀 I’m interested in development of new drugs
-- 🌱 I’m currently learning natural product chemistry
-- 💞️ I’m looking to collaborate on new drugs
+- 🌱 I’m currently learning natural Pharmaceutical chemistry
+- 💞️ I’m looking to various posibilities of life.
 - 📫 How to reach me lcy210306@163.com
 
 <!---
